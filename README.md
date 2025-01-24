@@ -1,1 +1,1 @@
-# news
+Aku Mau Istirahat
